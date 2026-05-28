@@ -13,8 +13,4 @@ Join our [Facebook Group](https://www.facebook.com/groups/2422433788198100) and 
 
 Here's samples of youtube videos I make
 
-
-![](https://youtu.be/50R4RzrVcW4?si=bBjh_Z_z0VSDsdMP)
-
-
-![Glassbelly Yellow Guppies](https://youtu.be/I7aog1aFay8)
+![](https://www.youtube.com/watch?v=AdElbFit_aE)
